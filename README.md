@@ -1,2 +1,2 @@
 # 7c
-muthefucker
+Basis programmeren
